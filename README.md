@@ -3,6 +3,5 @@
 Olá! Bem vindo ao meu livro de receitas :cookie:
 
 - Lasanha 
-
-  
-
+- Pudim de Leite
+- Panqueca
