@@ -47,7 +47,3 @@
 ​	7.Repita as camadas até a borda do recipiente.
 
 ​	8.Finalize com o queijo ralado e leve ao forno alto (220° C), preaquecido, por cerca de 20 minutos.
-
-
-
-receita boa porém nunca fiz kkk
