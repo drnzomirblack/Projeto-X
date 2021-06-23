@@ -7,3 +7,5 @@ Olá! Bem vindo ao meu livro de receitas :cookie:
 - Panqueca
 - Doce de Leite
 - Bolo de Cenoura
+- Palha Italiana
+
