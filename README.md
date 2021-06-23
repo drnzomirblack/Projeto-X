@@ -6,3 +6,4 @@ Olá! Bem vindo ao meu livro de receitas :cookie:
 - Pudim de Leite
 - Panqueca
 - Doce de Leite
+- Bolo de Cenoura
